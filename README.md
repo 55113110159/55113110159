@@ -1,5 +1,5 @@
 # 💫 About Me:
-💸 Owner of Mas kurnaiwan Studios<br>🕺 A Cool 25 Year Old Guy (I guess)<br>🇮🇩 From tulang bawang barat - Lampung! (indonesia)<br>💻 I am a young father in the year : 27 February 2023<br>
+💸 Owner of Tolecilik Studios<br>🕺 A Cool 25 Year Old Guy (I guess)<br>🇮🇩 From tulang bawang barat - Lampung! (indonesia)<br>💻 I am a young father in the year : 27 February 2023<br>
 
 
 ## 🌐 Socials:
